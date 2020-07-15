@@ -1,1 +1,1 @@
-![Random image from unsplash](https://source.unsplash.com/random)
+![Nothing to see here](https://media.giphy.com/media/xFpT7lMV5Mkqq0E6YM/giphy.gif)
